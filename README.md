@@ -1,4 +1,6 @@
-  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ <img width="570" height="299" alt="image" src="https://github.com/user-attachments/assets/4b8d8da8-5d94-4de5-a7e1-e2206f541e1c" />
+  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ <img width="736" height="920" alt="Image" src="https://github.com/user-attachments/assets/39c0ae85-2676-4870-a7bf-921cfdab55f8" />
 
 
- ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤ ㅤㅤ  ![](https://komarev.com/ghpvc/?username=emo-ivan&label=Kawaiii&color=D19DB9)
+ ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤ  ㅤㅤㅤㅤ ㅤㅤ  ![](https://komarev.com/ghpvc/?username=emo-ivan&label=Kawaiii&color=CC6A9F)
+
+ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ  $\color{#CC6A9F}{"cheer}$ $\color{#CC6A9F}{up "}$

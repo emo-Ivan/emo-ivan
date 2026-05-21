@@ -17,6 +17,6 @@
     ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ
       ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ 
   ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ 
-  ㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ ㅤㅤㅤㅤㅤ    ㅤㅤ ㅤㅤㅤ  ㅤㅤㅤ ㅤ ㅤㅤ  ![](https://komarev.com/ghpvc/?username=emo-ivan&label=Kawaiii&color=CC6A9F)
+  ㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤ  ![](https://komarev.com/ghpvc/?username=emo-ivan&label=Kawaiii&color=CC6A9F)
 
 ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ  $\color{#CC6A9F}{"cheer}$ $\color{#CC6A9F}{up "}$

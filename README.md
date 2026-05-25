@@ -3,10 +3,10 @@
 
     
   ㅤ    ㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤ    ㅤㅤ  ㅤㅤ
-  ㅤㅤㅤ    C+Hㅤㅤ  ㅤFREELYㅤㅤ  ㅤDNCㅤㅤ  ㅤINSPO=ASK
+  ㅤㅤㅤㅤ      C+Hㅤㅤ  ㅤFREELYㅤㅤ  ㅤDNCㅤㅤ  ㅤINSPO=ASK
     ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ 
 
-  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#d1dff6}{kdrama}$ $\color{#b2cbf2}{fanatic}$ㅤㅤ.  ㅤ $\color{#50b8e7}{yaoi}$ $\color{#84cdee}{yuri}$ $\color{#b9e2f5}{addicted}$ $\color{#dcf0fa}{!}$ $\color{#edf7fc}{!}$
+  ㅤㅤㅤㅤㅤㅤ  ㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#d1dff6}{kdrama}$ $\color{#b2cbf2}{fanatic}$ㅤㅤ.  ㅤ $\color{#50b8e7}{yaoi}$ $\color{#84cdee}{yuri}$ $\color{#b9e2f5}{addicted}$ $\color{#dcf0fa}{!}$ $\color{#edf7fc}{!}$
 ㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ
 
   ㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="26" height="26" alt="image" src="https://github.com/user-attachments/assets/22284df7-8fa3-447c-82a9-a989d1760ee4" />

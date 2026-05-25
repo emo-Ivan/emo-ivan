@@ -1,9 +1,22 @@
+  ㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ      ㅤㅤㅤ ㅤㅤㅤ  <img width="436" height="250" alt="image" src="https://github.com/user-attachments/assets/3cd798c7-4e32-4a16-a161-d791266d5d58" />
   ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ 
+
+    
+  ㅤ    ㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤ    ㅤㅤ  ㅤㅤ
+  ㅤㅤㅤ    C+Hㅤㅤ  ㅤFREELYㅤㅤ  ㅤDNCㅤㅤ  ㅤINSPO=ASK
     ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ 
-      ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ 
-  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ 
-  ㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ ㅤㅤㅤㅤㅤ    ㅤㅤ 
-    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ 
+
+  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#d1dff6}{kdrama}$ $\color{#b2cbf2}{fanatic}$ㅤㅤ.  ㅤ $\color{#50b8e7}{yaoi}$ $\color{#84cdee}{yuri}$ $\color{#b9e2f5}{addicted}$ $\color{#dcf0fa}{!}$ $\color{#edf7fc}{!}$
+ㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ
+
+  ㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="26" height="26" alt="image" src="https://github.com/user-attachments/assets/22284df7-8fa3-447c-82a9-a989d1760ee4" />
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=emo-ivan&label=HYUNG/UNNIE&color=B2cbf2)
+
+ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ  $\color{#b2cbf2}{사랑해요}$ $\color{#92b6f0}{!!}$  ㅤㅤㅤㅤ $\color{#92b6f0}{<3}$ $\color{#b2cbf2}{ISAAC}$
+
+  ㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ      ㅤㅤㅤ ㅤㅤㅤ  <img width="436" height="210" alt="image" src="https://github.com/user-attachments/assets/bb595d0d-959d-4fcb-8781-05f687df1ddb" />
+
+
 
   ㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ ㅤㅤㅤㅤㅤ    ㅤㅤ 
   ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ 
@@ -12,11 +25,3 @@
 
   
  ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤ
-  ㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ ㅤㅤㅤㅤㅤ    ㅤㅤ 
-    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ 
-    ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ
-      ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ 
-  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ 
-  ㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤ  ![](https://komarev.com/ghpvc/?username=emo-ivan&label=Kawaiii&color=CC6A9F)
-
-ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ  $\color{#CC6A9F}{"cheer}$ $\color{#CC6A9F}{up "}$

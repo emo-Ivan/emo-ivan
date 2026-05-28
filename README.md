@@ -3,13 +3,13 @@
 
     
   ㅤ    ㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤ    ㅤㅤ  ㅤㅤ
-  ㅤㅤㅤㅤ      C+Hㅤㅤ  ㅤFREELYㅤㅤ  ㅤDNCㅤㅤ  ㅤINSPO=ASK
+  ㅤㅤㅤㅤ ㅤㅤ        C+Hㅤㅤ  ㅤFREELYㅤㅤ  ㅤDNCㅤㅤ  ㅤ
     ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤ 
 
-  ㅤㅤㅤㅤㅤㅤ  ㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ  $\color{#d1dff6}{kdrama}$ $\color{#b2cbf2}{fanatic}$ㅤㅤ.  ㅤ $\color{#50b8e7}{yaoi}$ $\color{#84cdee}{yuri}$ $\color{#b9e2f5}{addicted}$ $\color{#dcf0fa}{!}$ $\color{#edf7fc}{!}$
+  ㅤㅤㅤㅤㅤㅤ  ㅤㅤ    ㅤㅤㅤㅤㅤ   ㅤㅤ   ㅤㅤㅤ  $\color{#d1dff6}{kdrama}$ $\color{#b2cbf2}{fanatic}$ㅤㅤ.  ㅤ $\color{#50b8e7}{yaoi}$ $\color{#84cdee}{yuri}$ $\color{#b9e2f5}{addicted}$ $\color{#dcf0fa}{!}$ $\color{#edf7fc}{!}$
 ㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ
 
-  ㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img width="26" height="26" alt="image" src="https://github.com/user-attachments/assets/22284df7-8fa3-447c-82a9-a989d1760ee4" />
+  ㅤㅤ  ㅤㅤㅤㅤㅤㅤㅤ   ㅤㅤㅤ   ㅤㅤㅤㅤㅤㅤㅤ<img width="26" height="26" alt="image" src="https://github.com/user-attachments/assets/22284df7-8fa3-447c-82a9-a989d1760ee4" />
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ![](https://komarev.com/ghpvc/?username=emo-ivan&label=HYUNG/UNNIE&color=B2cbf2)
 
 ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤ    ㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ  $\color{#b2cbf2}{사랑해요}$ $\color{#92b6f0}{!!}$  ㅤㅤㅤㅤ $\color{#92b6f0}{<3}$ $\color{#b2cbf2}{ISAAC}$
